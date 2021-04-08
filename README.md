@@ -4,5 +4,5 @@
 
 ![Mi foto](IMG_3987.jpg)
 
-Me gusta hacer deporte
+Holaa soy Mora, tengo 19 años y me gusta mucho hacer deporte. Voy al gimnasio hace 4 años y hacia voley en Pinocho :)
 
